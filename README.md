@@ -1,0 +1,1 @@
+# ReadingShare_aplicativo
